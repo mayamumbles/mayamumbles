@@ -1,4 +1,6 @@
-## Haihai, I'm Max 👋
+<img width="100%" alt="mayamumbles_garden" src="https://github.com/user-attachments/assets/a767e659-f3e7-4c61-ae67-1b643843388e" />
+
+## Haihai, I'm Maya 👋
 I'm a Software Engineering student at the U-UOAS, and currently learning to write qualitative code, understanding multiple languages!
 I also learn how to work in SCRUM during these terms, which allows me to become more proficient in my job.
 
