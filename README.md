@@ -11,5 +11,5 @@ Sometimes I'll also think of a project I could do myself, and then possibly crea
 
 #### Some facts about me :)
 - 🍃 I'm a big fan of nature, and like going on walks!
-- ✨ I like dazzling in some creative things into my every day life
+- ✨ I like dabbling in some creative things into my every day life
 - 📷 My hobbies are photography, and gaming!
